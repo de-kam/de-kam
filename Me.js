@@ -1,5 +1,3 @@
 - 👋 Hi, I’m @de-kam
-- 👀 I’m interested in F14 Tombcats
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in Minecraft
+- ➕ I’m currently creating No Limits Needed
