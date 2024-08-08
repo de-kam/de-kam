@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @de-kam
-- 👀 I’m interested in Gorilla Tag
-- ➕ I currently own the Gorilla Tag Clan: Party Hatters
+- 👋 Hi, I’m w7n
+- 👀 I’m interested in Minecraft
+- ➕ I make alot of minecraft datapacks and mods for minecraft
